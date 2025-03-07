@@ -5,13 +5,11 @@
 
 # SWRPG Starter Ship Decision
 
-This is a change to see if I unborked the plugin
-
 ## Ultimately Decided On:
 
 Kestrel. A bit munchkiny, but basically a slightly better/different version of the common HWK
 
-![[KST-100 a.pdf]]
+![KST-100 a.jpg](/img/user/Attachments/KST-100%20a.jpg)
 
 ## Lancer
 
