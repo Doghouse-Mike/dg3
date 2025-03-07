@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/design/misc/","title":"Misc"}
+{"dg-publish":true,"permalink":"/design/misc/","title":"Misc","noteIcon":""}
 ---
 
 
