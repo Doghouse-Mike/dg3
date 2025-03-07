@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/swrpg/quotes-to-use-in-swrpg/","title":"Quotes to Use in Swrpg","noteIcon":""}
 ---
 
+
 # Quotes to Use in Swrpg
 
 Look up some rocket raccoon/jack sparrow quotes
