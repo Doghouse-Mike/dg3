@@ -5,7 +5,7 @@
 
 # Angus
 
-![8CD29061 5FE1 4C13 82E0 7A4BDB10E96D](https://i.imgur.com/B1k1Ixs.jpeg)
+![8CD29061 5FE1 4C13 82E0 7A4BDB10E96D|839x839](https://i.imgur.com/B1k1Ixs.jpeg)
 
 ![Angus%20wof3%201](https://i.imgur.com/d2fJs0F.jpeg)
 
@@ -13,7 +13,7 @@
 
 ![gert label 2](https://i.imgur.com/6yUqYIa.jpeg)
 
-![Attachments/Greggs4.jpg](/img/user/Attachments/Greggs4.jpg)
+![Greggs4.webp](/img/user/Attachments/Greggs4.webp)
 
 ![Heinzfox.jpg](/img/user/Attachments/Heinzfox.jpg)
 

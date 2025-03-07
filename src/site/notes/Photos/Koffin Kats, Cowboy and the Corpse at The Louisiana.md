@@ -5,64 +5,64 @@
 
 # Koffin Kats, Cowboy and the Corpse at The Louisiana
 
-![Pasted image 20250226082152.jpg](/img/user/Attachments/Pasted%20image%2020250226082152.jpg)
+![](https://i.imgur.com/sNbAssQ.jpeg)
 
-![Pasted image 20250226082152 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082152%201.jpg)
+![](https://i.imgur.com/JiTww0s.jpeg)
 
-![Pasted image 20250226082152 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082152%202.jpg)
+![](https://i.imgur.com/EIjQbe6.jpeg)
 
-![Pasted image 20250226082152 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082152%203.jpg)
+![](https://i.imgur.com/RHOzMUw.jpeg)
 
-![Pasted image 20250226082152 4.jpg](/img/user/Attachments/Pasted%20image%2020250226082152%204.jpg)
+![](https://i.imgur.com/4ujvajI.jpeg)
 
-![Pasted image 20250226082153.jpg](/img/user/Attachments/Pasted%20image%2020250226082153.jpg)
+![](https://i.imgur.com/OWdp9PM.jpeg)
 
-![Pasted image 20250226082153 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082153%201.jpg)
+![](https://i.imgur.com/qY0Bne7.jpeg)
 
-![Pasted image 20250226082153 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082153%202.jpg)
+![](https://i.imgur.com/qDQT5Gi.jpeg)
 
-![Pasted image 20250226082153 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082153%203.jpg)
+![](https://i.imgur.com/SerwT37.jpeg)
 
-![Pasted image 20250226082153 4.jpg](/img/user/Attachments/Pasted%20image%2020250226082153%204.jpg)
+![](https://i.imgur.com/pDyPXY0.jpeg)
 
-![Pasted image 20250226082154.jpg](/img/user/Attachments/Pasted%20image%2020250226082154.jpg)
+![](https://i.imgur.com/y9rfy67.jpeg)
 
-![Pasted image 20250226082154 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082154%201.jpg)
+![](https://i.imgur.com/4Z5sv1S.jpeg)
 
-![Pasted image 20250226082154 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082154%202.jpg)
+![](https://i.imgur.com/mC7YGI9.jpeg)
 
-![Pasted image 20250226082154 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082154%203.jpg)
+![](https://i.imgur.com/3rsWRhy.jpeg)
 
-![Pasted image 20250226082154 4.jpg](/img/user/Attachments/Pasted%20image%2020250226082154%204.jpg)
+![](https://i.imgur.com/MPucpiG.jpeg)
 
-![Pasted image 20250226082155.jpg](/img/user/Attachments/Pasted%20image%2020250226082155.jpg)
+![](https://i.imgur.com/VIb1e5b.jpeg)
 
-![Pasted image 20250226082155 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082155%201.jpg)
+![](https://i.imgur.com/a8Hv48u.jpeg)
 
-![Pasted image 20250226082155 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082155%202.jpg)
+![](https://i.imgur.com/Ei394D1.jpeg)
 
-![Pasted image 20250226082155 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082155%203.jpg)
+![](https://i.imgur.com/3L4ZHKW.jpeg)
 
-![Pasted image 20250226082155 4.jpg](/img/user/Attachments/Pasted%20image%2020250226082155%204.jpg)
+![](https://i.imgur.com/nYgQLlv.jpeg)
 
-![Pasted image 20250226082155 5.jpg](/img/user/Attachments/Pasted%20image%2020250226082155%205.jpg)
+![](https://i.imgur.com/LHKsL2H.jpeg)
 
-![Pasted image 20250226082156.jpg](/img/user/Attachments/Pasted%20image%2020250226082156.jpg)
+![](https://i.imgur.com/Y67RWkt.jpeg)
 
-![Pasted image 20250226082156 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082156%201.jpg)
+![](https://i.imgur.com/cUPkIUv.jpeg)
 
-![Pasted image 20250226082156 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082156%202.jpg)
+![](https://i.imgur.com/0RYNCIa.jpeg)
 
-![Pasted image 20250226082156 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082156%203.jpg)
+![](https://i.imgur.com/6Iaec5y.jpeg)
 
-![Pasted image 20250226082156 4.jpg](/img/user/Attachments/Pasted%20image%2020250226082156%204.jpg)
+![](https://i.imgur.com/DtbMnhs.jpeg)
 
-![Pasted image 20250226082157.jpg](/img/user/Attachments/Pasted%20image%2020250226082157.jpg)
+![](https://i.imgur.com/LJfP7xu.jpeg)
 
-![Pasted image 20250226082157 1.jpg](/img/user/Attachments/Pasted%20image%2020250226082157%201.jpg)
+![](https://i.imgur.com/dQqG0BB.jpeg)
 
-![Pasted image 20250226082157 2.jpg](/img/user/Attachments/Pasted%20image%2020250226082157%202.jpg)
+![](https://i.imgur.com/VMDUS6Q.jpeg)
 
-![Pasted image 20250226082157 3.jpg](/img/user/Attachments/Pasted%20image%2020250226082157%203.jpg)
+![](https://i.imgur.com/dTkIqkW.jpeg)
 
-![Pasted image 20250226082158.jpg](/img/user/Attachments/Pasted%20image%2020250226082158.jpg)#gigs #photos 
+![](https://i.imgur.com/MuAdK62.jpeg)#gigs #photos 
