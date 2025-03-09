@@ -5,64 +5,64 @@
 
 # Gilded Cage at Moor Beer
 
-![Pasted image 20250309090123.jpg](/img/user/Attachments/Pasted%20image%2020250309090123.jpg)
+![](https://i.imgur.com/od2orM6.jpeg)
 
-![Pasted image 20250309090124.jpg](/img/user/Attachments/Pasted%20image%2020250309090124.jpg)
+![](https://i.imgur.com/ZVnageW.jpeg)
 
-![Pasted image 20250309090124 1.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%201.jpg)
+![](https://i.imgur.com/94EfQmj.jpeg)
 
-![Pasted image 20250309090124 2.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%202.jpg)
+![](https://i.imgur.com/lgY9si3.jpeg)
 
-![Pasted image 20250309090124 3.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%203.jpg)
+![](https://i.imgur.com/XRcIt37.jpeg)
 
-![Pasted image 20250309090124 4.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%204.jpg)
+![](https://i.imgur.com/P6V6M3Z.jpeg)
 
-![Pasted image 20250309090124 5.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%205.jpg)
+![](https://i.imgur.com/9lmgyVb.jpeg)
 
-![Pasted image 20250309090124 6.jpg](/img/user/Attachments/Pasted%20image%2020250309090124%206.jpg)
+![](https://i.imgur.com/BGKspil.jpeg)
 
-![Pasted image 20250309090125.jpg](/img/user/Attachments/Pasted%20image%2020250309090125.jpg)
+![](https://i.imgur.com/anpk53Y.jpeg)
 
-![Pasted image 20250309090125 1.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%201.jpg)
+![](https://i.imgur.com/35pGHej.jpeg)
 
-![Pasted image 20250309090125 2.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%202.jpg)
+![](https://i.imgur.com/Nt2vFBG.jpeg)
 
-![Pasted image 20250309090125 3.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%203.jpg)
+![](https://i.imgur.com/QBHCaoW.jpeg)
 
-![Pasted image 20250309090125 4.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%204.jpg)
+![](https://i.imgur.com/48JXqAS.jpeg)
 
-![Pasted image 20250309090125 5.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%205.jpg)
+![](https://i.imgur.com/a61TSFR.jpeg)
 
-![Pasted image 20250309090125 6.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%206.jpg)
+![](https://i.imgur.com/rv5qYA5.jpeg)
 
-![Pasted image 20250309090125 7.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%207.jpg)
+![](https://i.imgur.com/T5oOCPh.jpeg)
 
-![Pasted image 20250309090125 8.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%208.jpg)
+![](https://i.imgur.com/cVae3yU.jpeg)
 
-![Pasted image 20250309090125 9.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%209.jpg)
+![](https://i.imgur.com/J9oKsPH.jpeg)
 
-![Pasted image 20250309090125 10.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%2010.jpg)
+![](https://i.imgur.com/q00b0Wy.jpeg)
 
-![Pasted image 20250309090125 11.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%2011.jpg)
+![](https://i.imgur.com/nlmFQHI.jpeg)
 
-![Pasted image 20250309090125 12.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%2012.jpg)
+![](https://i.imgur.com/JLe3Ofm.jpeg)
 
-![Pasted image 20250309090125 13.jpg](/img/user/Attachments/Pasted%20image%2020250309090125%2013.jpg)
+![](https://i.imgur.com/tUSs4y9.jpeg)
 
-![Pasted image 20250309090126.jpg](/img/user/Attachments/Pasted%20image%2020250309090126.jpg)
+![](https://i.imgur.com/jB59Qyi.jpeg)
 
-![Pasted image 20250309090126 1.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%201.jpg)
+![](https://i.imgur.com/mjPkDLQ.jpeg)
 
-![Pasted image 20250309090126 2.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%202.jpg)
+![](https://i.imgur.com/JNVMwmR.jpeg)
 
-![Pasted image 20250309090126 3.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%203.jpg)
+![](https://i.imgur.com/RPELBhq.jpeg)
 
-![Pasted image 20250309090126 4.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%204.jpg)
+![](https://i.imgur.com/WWv7iKt.jpeg)
 
-![Pasted image 20250309090126 5.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%205.jpg)
+![](https://i.imgur.com/3c7POCU.jpeg)
 
-![Pasted image 20250309090126 6.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%206.jpg)
+![](https://i.imgur.com/OjwwxWi.jpeg)
 
-![Pasted image 20250309090126 7.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%207.jpg)
+![](https://i.imgur.com/vt4KBGu.jpeg)
 
-![Pasted image 20250309090126 8.jpg](/img/user/Attachments/Pasted%20image%2020250309090126%208.jpg)
+![](https://i.imgur.com/yUWWumk.jpeg)
