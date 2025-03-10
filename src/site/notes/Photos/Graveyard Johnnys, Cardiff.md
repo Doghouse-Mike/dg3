@@ -1,9 +1,9 @@
 ---
-{"dg-publish":true,"permalink":"/photos/graveyard-johnnys-cardiff/","title":"Graveyard Johnnys, Cardiff.","noteIcon":""}
+{"dg-publish":true,"permalink":"/photos/graveyard-johnnys-cardiff/","title":"Graveyard Johnnys, Cardiff","noteIcon":""}
 ---
 
 
-# Graveyard Johnnys, Cardiff.
+# Graveyard Johnnys, Cardiff
 
 ![](https://i.imgur.com/uUeitKB.jpeg)
 
