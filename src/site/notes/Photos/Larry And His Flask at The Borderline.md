@@ -1,9 +1,9 @@
 ---
-{"dg-publish":true,"permalink":"/photos/larry-and-his-flask-at-the-borderline/","title":"Larry And His Flask at The Borderline","noteIcon":""}
+{"dg-publish":true,"permalink":"/photos/larry-and-his-flask-at-the-borderline/","title":"Larry And His Flask at The Borderline.","noteIcon":""}
 ---
 
 
-# Larry And His Flask at The Borderline
+# Larry And His Flask at The Borderline.
 
 ![Pasted image 20250226082919.jpg](/img/user/Attachments/Pasted%20image%2020250226082919.jpg)
 

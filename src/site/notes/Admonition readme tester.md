@@ -1,9 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/admonition-readme-tester/","title":"Admonition Readme Tester","noteIcon":""}
+{"dg-publish":true,"permalink":"/admonition-readme-tester/","title":"Official Docs Start Here:","noteIcon":""}
 ---
 
-
-# Admonition Readme Tester
 
 ```ad-note
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nulla et euismod nulla.

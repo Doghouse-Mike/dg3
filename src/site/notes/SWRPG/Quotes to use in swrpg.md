@@ -59,4 +59,4 @@ Look up some rocket raccoon/jack sparrow quotes
 - *when busted/caught out* - You have passed my test
 - Is your idiot brain getting fucked by stupid?
 - Have you tried removing the head or destroying the brain?
-- You remind me of school on a Sunday. (no class)
+- 

@@ -1,9 +1,9 @@
 ---
-{"dg-publish":true,"permalink":"/photos/jd-mc-pherson-at-the-bullingdon/","title":"JD McPherson at The Bullingdon","noteIcon":""}
+{"dg-publish":true,"permalink":"/photos/jd-mc-pherson-at-the-bullingdon/","title":"JD McPherson at The Bullingdon.","noteIcon":""}
 ---
 
 
-# JD McPherson at The Bullingdon
+# JD McPherson at The Bullingdon.
 
 ![](https://i.imgur.com/rUITEKi.jpeg)
 
